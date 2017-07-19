@@ -1,1 +1,1 @@
-git ng ina mo
+git ng ina mo update update ng ina mo bat basag ang baso
